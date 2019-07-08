@@ -2,6 +2,8 @@
 # 
 如何拯救被东南亚黑产禁锢的中国程序员，这是一个问题
 
+https://mp.weixin.qq.com/s?__biz=MzI1NDMxNzYwNQ==&mid=2247483895&idx=1&sn=0f26aa9ca1f9ae541ece738b3fbd1d07&chksm=e9c644bddeb1cdab6007c7f09375265a9d3ff435de5591b28c9a4a944a4813690184e3e44bcc&mpshare=1&scene=23&srcid=#rd
+
 ![6911562571383_.pi](media/6911562571383_.pic.jpg)
 我希望这视频是假的，但是我相信这种事情肯定存在
 https://www.facebook.com/tywin.zhang.9/videos/876207332758863/
