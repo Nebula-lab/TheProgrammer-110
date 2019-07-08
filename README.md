@@ -4,3 +4,4 @@
 # 各种骗局！！！！
 * [东南亚程序员招聘到底水有多深？]<https://www.zhihu.com/question/65333997>
 * 程序员的黑砖窑，东南亚博彩骗局详解 https://www.tmtpost.com/3886060.html
+* 东南亚的招聘骗局，程序员请注意！https://juejin.im/post/5cb92917f265da03841288df
